@@ -1,1 +1,1 @@
-# VSC
+# VSC is a SPECIAL program that is used for cars made by The Honeycutts and should be used with permision strictly by the highest rank of The Honeycutts                           Licensed by The Honeycutts
